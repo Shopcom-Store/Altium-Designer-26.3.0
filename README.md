@@ -10,6 +10,12 @@ https://www.shopcom.tn/product/altium-designer-26-3-0/
 
 Product Price : 10,785 $
 
+Payment :
+https://www.shopcom.tn/payment
+
+Website :
+https://www.shopcom.tn
+
 Description :
 
 Altium Designer 26.3.0 Build 6 – Description
